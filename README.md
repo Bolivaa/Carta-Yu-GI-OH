@@ -1,0 +1,1 @@
+# Carta-Yu-GI-OH
